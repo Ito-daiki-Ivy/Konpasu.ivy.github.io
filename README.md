@@ -1,1 +1,0 @@
-# Konpasu.ivy.github.io
